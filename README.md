@@ -13,6 +13,10 @@ archive
 
 https://drive.google.com/file/d/14VyI2-wS3xZv71VHVoY2k5vlC3DX1rg0/view?usp=sharing
 
+وأيضاً البرنامج بصيغة ipa:
+
+https://drive.google.com/file/d/1ty2nFCtZSuazUCumSLD27ApQm2_uQSyP/view?usp=sharing
+
 يتوفر نموذج لتصميم واجهة جواب على الرابط التالي
 
 https://xd.adobe.com/view/e0e10455-8ef9-453d-5957-0a9129f79ad9-96d0/
